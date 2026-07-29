@@ -5,6 +5,8 @@
 下邊有俾人踢爆嘅詳細資料
 
 #蝦女仔 #亮碧思 #傳銷 #消費商 #呃人 #allianse #francine #bastion #valor #九龍灣企業廣場 #旺角怡安閣 #La Concorde #HKU
+![](IMG_4216.png)
+![](IMG_4217.png)
 ![](IMG_4209.jpeg)
 ![](IMG_4210.jpeg)
 ![](IMG_4211.jpeg)
@@ -12,5 +14,3 @@
 ![](IMG_4213.jpeg)
 ![](IMG_4214.jpeg)
 ![](IMG_4215.jpeg)
-![](IMG_4216.jpeg)
-![](IMG_4217.jpeg)
